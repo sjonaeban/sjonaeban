@@ -13,6 +13,6 @@ I have hands on experience on network troubleshooting, software/hardware trouble
 
 **Fun Facts:**
 - I like walking and watching people 
-- I always watch TED Talks
+- I love watching TED Talks
 - I gym a lot 
 
