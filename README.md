@@ -11,8 +11,4 @@ I have hands on experience on network troubleshooting, software/hardware trouble
 **Email**: sjonaeban@gmail.com  
 **WhatsApp**: 973-3542-4521
 
-**Fun Facts:**
-- I like walking and watching people 
-- I love watching TED Talks
-- I gym a lot 
 
