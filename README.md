@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Jon Aeban G. Silayro, a recent IT graduate from Bulacan State University in the Philippines, currently seeking opportunities in the IT Field.
+I'm Jon Aeban G. Silayro, IT graduate from Bulacan State University in the Philippines, currently seeking opportunities in the IT Field.
 
 I'm currently studying for my CCNA certification
 
