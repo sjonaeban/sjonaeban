@@ -9,6 +9,6 @@ I used to work as an IT Operations in Concentrix.
 I have hands on experience on network troubleshooting, software/hardware troubleshooting and installation, OS Imaging - Re-Imaging, Ticketing System. 
 
 **Email**: sjonaeban@gmail.com  
-**WhatsApp**: 973-3542-4521
+**WhatsApp**: 973-3622-8599
 
 
